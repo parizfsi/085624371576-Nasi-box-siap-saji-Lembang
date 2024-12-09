@@ -12,3 +12,5 @@ Hubungi no di bawah ini
 https://nasiboxenakdilembang.blogspot.com/
 
 https://nasiboxenakdilembang.blogspot.com/2024/12/085624371576nasi-box-praktis-di.html
+
+https://medium.com/@parizcake/085624371576-nasi-box-lembang-murah-meriah-nasi-box-siap-saji-lembang-c0b77130352f
